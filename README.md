@@ -2,9 +2,9 @@
 51吃瓜网-91吃瓜-17吃瓜-在线吃瓜网-今日吃瓜-瓜神网-全网更新最快最全的吃瓜网
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg25/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg25/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
